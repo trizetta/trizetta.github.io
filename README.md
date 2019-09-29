@@ -1,2 +1,0 @@
-pastebin.com/raw/EKQLhakB
-pastebin.com/raw/UDi0VJAG
